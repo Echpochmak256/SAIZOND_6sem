@@ -1,1 +1,0 @@
-# SAIZOND_6sem
